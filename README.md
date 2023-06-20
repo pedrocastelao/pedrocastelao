@@ -2,4 +2,4 @@
 
 - 🔭 Analista de Sistema
 - 🌱 Estudando Sistema de Informação
-- 📫 Contate-me no email: castelao.pedro2@gmail.com
+- 📫 Contate-me no email: pedro.castelao@outlook.com.br
